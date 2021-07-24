@@ -1,1 +1,1 @@
-# resolbio.github.io
+Rasol Sindy
